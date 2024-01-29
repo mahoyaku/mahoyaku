@@ -4,3 +4,5 @@ mhyk + coe + lotm<br>
 not new fan of medias<br>
 i afk here because i just wanna find other people into the stuff i like too<br>
 <b>be my friend</b> leave a message on my guestbook with a pfp btw https://www3.cbox.ws/box/?boxid=3534790&boxtag=Embb0G<br>
+<br>
+Suuuuuuuuuuper autistic. if you want me to not bug you Tell me directly or im gonna keep doing it
