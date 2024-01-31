@@ -3,6 +3,6 @@ i dont know anything about ponytown or the acronyms... im borderline dyslexic im
 mhyk + coe + lotm<br>
 not new fan of medias<br>
 i afk here because i just wanna find other people into the stuff i like too<br>
-<b>be my friend</b> (just let me add you to my friends list im not gonn talk a whole lot) leave a message on my guestbook with a pfp btw https://www3.cbox.ws/box/?boxid=3534790&boxtag=Embb0G<br>
+<b>be my friend</b> (just let me add you to my friends list im not gonn talk a whole lot <b>actually nevermind i take that back im a super social person</b>) leave a message on my guestbook with a pfp btw https://www3.cbox.ws/box/?boxid=3534790&boxtag=Embb0G<br>
 <br>
 Suuuuuuuuuuper autistic. i cant read the room but i can read the tone! so if you want me to quit something send me back a clear msg an ill understand. otherwise im taking no response as yer just afk
