@@ -8,4 +8,5 @@ i afk here because i just wanna find other people into the stuff i like too<br>
 <br>
 Suuuuuuuuuuper autistic. i cant read the room but i can read the tone! so if you want me to quit something send me back a clear msg an ill understand. otherwise im taking no response as yer just afk<br>
 <br>
+This is a chocolate chip cookie i treid to make<br>
 <img src="https://cdn.discordapp.com/attachments/1091100208890380369/1181051229208588370/IMG_20231203_205152_549.jpg" width="200px"> <img src="https://cdn.discordapp.com/attachments/1091100208890380369/1181063492548177971/IMG_20231203_205409_722.jpg" width="200px">
